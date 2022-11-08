@@ -1,2 +1,3 @@
-# Reposit-rio_Desafio_DIO
-Repositório criado para conclusão do primeiro desafio do BootCamp Orange Tech+ na plataforma Dio.
+# Algumas Anotações
+
+##### Acabei percebendo que não tenho nenhuma _anotação_, porque fica tudo em vídeo XD
