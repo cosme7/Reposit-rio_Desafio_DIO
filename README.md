@@ -14,7 +14,7 @@
 
 ## Modo de Preparo
 
-* Corte o frango em cubos, separe-o em uma recipiente, e ponha o tempero a gosto que você quiser, de piment & sal a páprica doce ou picante e temperos prontos de frango como Sazon e derivados EXCETO os de tablets como Knor e tals, mas tua cabeça é teu guia, deixe ele quietinho durante uns 30m na geladeira ou fora dela, tanto faz.
+* Corte o frango em cubos, separe-o em uma recipiente, e ponha o tempero a gosto que você quiser, de pimenta & sal a páprica doce ou picante e temperos prontos de frango como Sazon e derivados EXCETO os de tablets como Knor e tals, mas tua cabeça é teu guia, deixe ele quietinho durante uns 30m na geladeira ou fora dela, tanto faz.
 * Eu geralmente tempero com Pimenta, Sal, Orégano, Páprica Doce ou Picante, e tempero pronto de Frango, ele tem uma coloração amarelada e dá um a mais na receita, ah sim, ponho Coloral para dar uma corzinha.
 * Picar a cebola, bem picadinha.
 * Picar o alho.
